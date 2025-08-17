@@ -1,5 +1,4 @@
-📘 Pinewood Builders Neutrals Handbook
-Welcome to the Pinewood Builders Neutrals Handbook — a community-created guide designed to support and inform members of the Neutrals group within the Pinewood Builders universe.
+📘 Pinewood Builders Greywatch Division Handbook Welcome to the Pinewood Builders Greywatch Division Handbook — a community-created guide designed to support and inform members of the Greywatch Division group within the Pinewood Builders universe.
 
 ⚠️ Disclaimer
 This handbook is an unofficial fan-made resource. It is not affiliated with, endorsed by, or officially connected to Pinewood Builders, its developers, or any associated entities. All content within this guide is created by fans for fans, with the goal of enhancing the experience and understanding of the Neutrals role.
